@@ -1,2 +1,2 @@
 # RianoPrime
-Orang nya masih bermimpi
+One Shall Stand and One Shall Fall
